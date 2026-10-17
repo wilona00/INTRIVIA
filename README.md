@@ -10,3 +10,6 @@ Menurut saya, INTRIVIA 2026 kali ini sangat seru, karena dari materinya sendiri 
 
 ## Kesan Pesan Cluster 16 Sejauh Ini
 CLUSTER 16 SERU BANGET, IM SO GLAD that i be the part of cl 16. Terima kasih kak Senja dan kak Nayaka karna sudah menjadi mentor yang selalu informatif, dann baik banget.
+
+## Harapan Kuliah
+Semoga di perkuliahan kali ini, aku bisa selalu aktif dalam bidang akademik maupun non akademik. Bisa balance antara hardskill dan softskill. Dan bisa dikelilingi sama orang-orang yang saling supportif.
